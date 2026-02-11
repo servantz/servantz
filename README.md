@@ -1,7 +1,7 @@
 <p align="center">
   <img src="https://i.imgur.com/f86XbTQ.png" alt="hi">
   <p align="center">
- ArchieㅤorㅤSannieㅤㅤㅤHe  /  Himㅤㅤㅤ16YO
+ ArchieㅤorㅤSannieㅤㅤㅤHe  /  Himㅤㅤㅤ17YO
   </p>
   <p align="center">
   MainlyㅤAFKㅤㅤㅤㅤㅤWhisperㅤToㅤInteract
